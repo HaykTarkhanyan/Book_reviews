@@ -1,4 +1,4 @@
-## 3 Comrades - Erich Maria Remarque
+## Erich Maria Remarque - Three Comrades
 
 Page count - 500
 
